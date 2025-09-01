@@ -1,16 +1,30 @@
-## Hi there 👋
+![banner](https://github.com/cinn08/bio/blob/main/cinn.png)
 
-<!--
-**cinnflake/cinnflake** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# about me
 
-Here are some ideas to get you started:
+16, paki femboy
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br>
+
+PYTHON, HTML, MS WORD, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY
+
+## my main shi
+
+- [youtube](https://www.youtube.com/@cinnflake)
+- [reddit](https://www.reddit.com/u/cinnflake)
+
+## my roblox game
+
+- [rogrounds](https://www.roblox.com/games/11994994061)
+
+## my minecraft server
+
+- [cinndric discord](https://www.discord.gg/eUYcGYDXza)
+- [cinndric youtube](https://www.youtube.com/@cinndric)
+- [cinndric instagram](https://www.instagram.com/cinndric)
+
+## shalom
+
+*insert nitency pushup*
+
+![nitencypushup](https://github.com/cinn08/bio/blob/main/nitencypushup.gif)
