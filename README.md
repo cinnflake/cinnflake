@@ -1,4 +1,4 @@
-![banner](https://github.com/cinn08/bio/blob/main/cinn.png)
+![banner](https://github.com/cinnflake/cinnflake/blob/main/banner.png)
 
 # about me
 
@@ -25,6 +25,6 @@ PYTHON, HTML, MS WORD, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY
 
 ## shalom
 
-*insert nitency pushup*
+_insert nitency pushup_
 
-![nitencypushup](https://github.com/cinn08/bio/blob/main/nitencypushup.gif)
+![nitencypushup](https://github.com/cinnflake/cinnflake/blob/main/nitencypushup.gif)
