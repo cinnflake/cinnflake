@@ -19,7 +19,7 @@ PYTHON, HTML, MS WORD, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY
 
 ## my minecraft server
 
-- [website/ip](https://wwww.cinndric.com) = cinndric.com
+- [website / ip](https://wwww.cinndric.com) = cinndric.com
 - [discord](https://www.discord.gg/eUYcGYDXza) = discord.gg/eUYcGYDXza
 - [youtube](https://www.youtube.com/@cinndric) = @cinndric
 - [instagram](https://www.instagram.com/cinndric) = @cinndric
