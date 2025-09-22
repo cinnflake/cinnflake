@@ -10,8 +10,8 @@ PYTHON, HTML, MS WORD, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY
 
 ## my main shi
 
-- [youtube](https://www.youtube.com/@cinnflake)
-- [reddit](https://www.reddit.com/u/cinnflake)
+- [youtube](https://www.youtube.com/@cinnflake) = @cinnflake
+- [reddit](https://www.reddit.com/u/cinnflake) = @cinnflake
 
 ## my roblox game
 
@@ -19,9 +19,10 @@ PYTHON, HTML, MS WORD, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY
 
 ## my minecraft server
 
-- [cinndric discord](https://www.discord.gg/eUYcGYDXza)
-- [cinndric youtube](https://www.youtube.com/@cinndric)
-- [cinndric instagram](https://www.instagram.com/cinndric)
+- [website/ip](https://wwww.cinndric.com) = cinndric.com
+- [discord](https://www.discord.gg/eUYcGYDXza) = discord.gg/eUYcGYDXza
+- [youtube](https://www.youtube.com/@cinndric) = @cinndric
+- [instagram](https://www.instagram.com/cinndric) = @cinndric
 
 ## shalom
 
