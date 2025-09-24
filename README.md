@@ -3,9 +3,6 @@
 # about me
 
 16, paki femboy
-
-<br>
-
 - PYTHON
 - HTML
 - GIT & GITHUB
