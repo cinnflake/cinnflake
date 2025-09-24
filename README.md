@@ -6,7 +6,15 @@
 
 <br>
 
-PYTHON, HTML, BATCH, MS OFFICE, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY, GIT, CHATGPT, GEMINI
+- PYTHON
+- HTML
+- GIT & GITHUB
+- CHATGPT & GEMINI
+- BATCH
+- MICROSOFT OFFICE
+- DIGITAL MARKETING & ADVERTISING
+- BLOGGING
+- DATA ENTRY
 
 ## my main shi
 
@@ -25,7 +33,5 @@ PYTHON, HTML, BATCH, MS OFFICE, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY, GI
 - [instagram](https://www.instagram.com/cinndric) = @cinndric
 
 ## shalom
-
-_insert nitency pushup_
 
 ![nitencypushup](https://github.com/cinnflake/cinnflake/blob/main/nitencypushup.gif)
