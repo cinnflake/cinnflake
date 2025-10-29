@@ -3,6 +3,8 @@
 # about me
 
 2008, shia, paki femboy
+<br>
+bi faggot 😛😛
 - PYTHON
 - HTML
 - GIT & GITHUB
