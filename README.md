@@ -2,7 +2,7 @@
 
 # about me
 
-16, paki femboy
+2008, shia, paki femboy
 - PYTHON
 - HTML
 - GIT & GITHUB
