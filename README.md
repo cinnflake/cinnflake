@@ -17,7 +17,7 @@ bi faggot 😛😛
 
 ## my main shi
 
-- [youtube](https://www.youtube.com/@cinnflake) = @cinnflake
+- [twitch](https://www.twitch.tv/@cinnflake) = @cinnflake
 - [reddit](https://www.reddit.com/u/cinnflake) = @cinnflake
 
 ## my roblox game
@@ -28,7 +28,6 @@ bi faggot 😛😛
 
 - [website / ip](https://wwww.cinndric.com) = cinndric.com
 - [discord](https://www.discord.gg/eUYcGYDXza) = discord.gg/eUYcGYDXza
-- [youtube](https://www.youtube.com/@cinndric) = @cinndric
 - [instagram](https://www.instagram.com/cinndric) = @cinndric
 
 ## shalom
