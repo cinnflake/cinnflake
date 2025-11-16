@@ -2,9 +2,8 @@
 
 # about me
 
-2008, shia, paki femboy
+2008, pakistan, shia femboy, bi
 <br>
-bi faggot 😛😛
 - PYTHON
 - HTML
 - GIT & GITHUB
@@ -18,7 +17,7 @@ bi faggot 😛😛
 ## my main shi
 
 - [twitch](https://www.twitch.tv/cinnflake) = @cinnflake
-- [reddit](https://www.reddit.com/u/cinnflake) = @cinnflake
+- [instagram](https://www.instagram.com/cinnflake) = @cinnflake
 
 ## my roblox game
 
