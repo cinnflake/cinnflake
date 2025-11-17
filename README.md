@@ -27,7 +27,6 @@
 
 - [website / ip](https://wwww.cinndric.com) = cinndric.com
 - [discord](https://www.discord.gg/eUYcGYDXza) = discord.gg/eUYcGYDXza
-- [instagram](https://www.instagram.com/cinndric) = @cinndric
 
 ## shalom
 
