@@ -14,19 +14,9 @@
 - BLOGGING
 - DATA ENTRY
 
-## my main shi
+## my links
 
-- [twitch](https://www.twitch.tv/cinnflake) = @cinnflake
-- [instagram](https://www.instagram.com/cinnflake) = @cinnflake
-
-## my roblox game
-
-- [rogrounds](https://www.roblox.com/games/11994994061)
-
-## my minecraft server
-
-- [website / ip](https://wwww.cinndric.com) = cinndric.com
-- [discord](https://www.discord.gg/eUYcGYDXza) = discord.gg/eUYcGYDXza
+- [linktree](https://www.linktr.ee/cinnflake) = linktr.ee/cinnflake
 
 ## shalom
 
