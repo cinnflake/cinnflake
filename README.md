@@ -2,7 +2,7 @@
 
 # about me
 
-2008, pakistan, shia femboy, bi
+pakistan, shia, cis femboy, bi, 2008 ( he / him / his )
 <br>
 - PYTHON
 - HTML
