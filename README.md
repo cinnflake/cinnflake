@@ -20,4 +20,4 @@ pakistan, cis femboy, bi, 2008 ( he / him / his )
 
 ## shalom
 
-![nitencypushup](https://github.com/cinnflake/cinnflake/blob/main/nitencypushup.gif)
+![freaky](https://github.com/cinnflake/cinnflake/blob/main/freaky.gif)
