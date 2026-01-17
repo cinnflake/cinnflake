@@ -2,7 +2,7 @@
 
 # about me
 
-pakistan, cis femboy, bi, 2008 ( he / him / his )
+pakistan, cis-femboy, bi, queer, 2008 ( he / him / his )
 <br>
 - PYTHON
 - HTML
