@@ -2,7 +2,7 @@
 
 # about me
 
-pakistan, trans-nonbinary, femboy, bi, queer, 2008 ( ze / zir )
+pakistan, amab, trans-nonbinary, femboy, bi, queer, 2008 ( ze / zir )
 <br>
 - PYTHON
 - HTML
