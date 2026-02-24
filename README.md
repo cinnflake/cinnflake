@@ -3,9 +3,13 @@
 # about me
 
 pakistan, agnostic, femboy, bi, queer, vegan, 2008 ( ze / zir )
+
 <br>
+
 married to the state ❤️
+
 <br>
+
 - PYTHON
 - HTML
 - GIT & GITHUB
