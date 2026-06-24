@@ -3,13 +3,11 @@
 ## [linktr.ee/cinnflake](https://www.linktr.ee/cinnflake) | 2008 pakistan demiboy bi leftwing computer (ze/zir)
 
 **[it/software](https://www.github.com/cinnflake/cinnflake/blob/main/resume.pdf)**
-
 - program database web game app
 - customersupport telecomm dataentry
 - advertise market blog edit design
 
-## skill
-
+**skill**
 - python
 - javascript
 - html
