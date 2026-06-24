@@ -1,3 +1,5 @@
+![gm](https://github.com/cinnflake/cinnflake/blob/main/banner.gif)
+
 ## [linktr.ee/cinnflake](https://www.linktr.ee/cinnflake) | 2008 pakistan demiboy bi leftwing computer (ze/zir)
 
 **[it/software](https://www.github.com/cinnflake/cinnflake/blob/main/resume.pdf)**
@@ -18,4 +20,4 @@
 - english
 - urdu
 
-![gn](https://github.com/cinnflake/cinnflake/blob/main/banner.gif)
+![gn](https://github.com/cinnflake/cinnflake/blob/main/resume.png)
